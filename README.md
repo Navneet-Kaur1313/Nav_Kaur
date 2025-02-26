@@ -1,4 +1,4 @@
 # Nav_Kaur
 Creating something............
 <br>
-Author: Navneet Kaur
+Author: Navneet Kaur(SINGHNI)
